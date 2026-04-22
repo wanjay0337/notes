@@ -1,5 +1,5 @@
 # notes
-note for wanjay0337
+note by wanjay0337 and AI
 
 
 
